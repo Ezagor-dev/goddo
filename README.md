@@ -479,7 +479,7 @@ But this is just the beginning. Future seasons will bring:
 By embracing Goddo AI, you’re not just using a tool—you’re joining a vibrant community of creators pushing the boundaries of AI-generated art.
 
 # Why Join?
-## Free & Unlimited
+## Free & Unlimited
 * No Hidden Fees: Experience the full potential of Goddo AI without any costs.
 * Unlimited Creativity: No limits on how much you can create or share.
 ## Community Driven
